@@ -1,0 +1,1 @@
+# prognozy_sprzedaz
